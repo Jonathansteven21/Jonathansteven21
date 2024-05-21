@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Frameworks,Courses**
 
-- 💬 Ask me about **https://www.linkedin.com/in/jonathan-garavito/**
+- 💬 Ask me about **https://www.linkedin.com/in/jonathan-garavito-chaparro/**
 
 - 📄 Know about my experiences [link](link)
 
